@@ -1,1 +1,1 @@
-my entre project
+My entrepreneurship project.
